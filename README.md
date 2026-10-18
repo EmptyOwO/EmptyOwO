@@ -87,7 +87,7 @@ Spoilers, however, are not. Please have mercy.
 
 I like Blade. A lot.
 
-His character, his design, his backstory, his overall presence—there's plenty to appreciate about him.
+His character, his design, his backstory, his overall presence, there's plenty to appreciate about him.
 
 LIKE WHERE DO I EVEN BEGIN???? 😭
 
