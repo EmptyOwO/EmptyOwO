@@ -82,31 +82,56 @@ Spoilers, however, are not. Please have mercy.
 
 <img src="https://media1.tenor.com/m/tStHrtBbrTsAAAAd/blade-honkai-star-rail.gif" width="280" alt="Blade animation"/>
 
-### Blade — Honkai: Star Rail
 
 **Yes, this man gets his own section.**
 
-</div>
-
 I like Blade. A lot.
 
-His character, his design, his backstory, his overall
-presence—there's plenty to appreciate about him.
+His character, his design, his backstory, his overall presence—there's plenty to appreciate about him.
 
-I could probably ramble about him for an unreasonable
-amount of time, but I'll spare everyone the full essay.
+LIKE WHERE DO I EVEN BEGIN???? 😭
+
+I genuinely love everything about this man. His design? Gorgeous. His voice? I could listen to him talk for hours. His backstory? I NEED TO TALK ABOUT IT. His entire character in general? Don't even get me started.
+
+There's just something about Blade that makes him so interesting to me. I could spend hours talking about his lore, his personality, his relationships with other characters, and all the little details about him that make me appreciate his character even more. He's genuinely one of those characters that makes me want to know more about him, and the more I learn, the more attached I get.
+
+AND CAN WE TALK ABOUT HIS DESIGN FOR A SECOND????
+
+The long dark hair, the red eyes, the outfit, the color palette, EVERYTHING. Whoever designed this man knew exactly what they were doing because how am I supposed to act normal about him???? I SWEAR I AM TRYING.
+
+But honestly, it's not just because he's attractive (although let's be real, that definitely doesn't help my case). I genuinely find his character fascinating. There's so much to unpack about him, especially when it comes to his past and how everything that happened to him shaped who he is now. I love characters who have so much going on beneath the surface, and Blade is definitely one of them.
+
+And the fact that he's just so... HIM. IDK HOW TO EXPLAIN IT. I could probably write an entire essay about why I like him and still feel like I haven't said enough. There's always something else I want to talk about whenever he's brought up.
+
+I also love how his character isn't just someone who's there to look cool. There's actual tragedy behind him, and I find it interesting how his past continues to affect him. I want to understand more about him, his thoughts, his feelings, and the way he sees the world. I just want to put this man under a microscope and study him (respectfully).
+
+I could probably ramble about Blade for an unreasonable amount of time, but I'll spare everyone the full essay.
 
 For now.
 
-<div align="center">
+Because seriously, if you ever ask me about Blade, PLEASE BE PREPARED. I might start with one small detail and somehow end up talking about his entire backstory, his character, his design, and every single thought that has ever crossed my mind about him. I am not responsible for how long that conversation will last.
+
+And don't even get me started on how I want him to be happy. LIKE PLEASE???? Can this man catch a break for ONCE???? I know this is Honkai: Star Rail we're talking about, but LET HIM REST. GIVE HIM A NICE DAY. LET HIM EXPERIENCE SOMETHING GOOD WITHOUT HAVING TO SUFFER FOR IT.
+
+I just want him to have some peace. Is that too much to ask???? 😭
+
+Anyway, I think it's safe to say that I am very normal about Blade.
 
 *I can fix him—*
 
 Never mind. I don't think that's the point.
 
-</div>
+I don't even think I want to fix him at this point. I just want to give him a blanket, let him sleep for twelve hours, and make sure nobody bothers him for the rest of the day.
 
----
+**Hoyo, I'm looking directly at you.**
+
+And yes, I am aware that he's fictional. THANK YOU. I KNOW. THIS INFORMATION CHANGES NOTHING.
+
+If you also like Blade, PLEASE TALK TO ME. I NEED PEOPLE I CAN YAP ABOUT HIM WITH. I DON'T CARE IF IT'S ABOUT HIS LORE, HIS DESIGN, HIS BACKSTORY, OR JUST HOW PRETTY HE IS. I WILL LISTEN.
+
+anyway. blade my beloved. 💙
+
+</div>
 
 ## 🖤・things i like
 
@@ -114,7 +139,7 @@ Never mind. I don't think that's the point.
 - Old buildings and gothic architecture
 - Anime
 - Manga, manhwa, and light novels
-- Honkai: Star Rail, Genshin Impact, Reverse 1999
+- Honkai: Star Rail, Genshin Impact, Reverse 1999 and DMC
 - Blade. Again.
 
 I especially enjoy stories with interesting character
