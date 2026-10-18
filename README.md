@@ -80,7 +80,7 @@ Spoilers, however, are not. Please have mercy.
 
 <div align="center">
 
-<img src="https://media.tenor.com/2roX3uxz_68AAAAC/hsr-blade-honkai-star-rail.gif" width="280" alt="Blade animation"/>
+<img src="https://media1.tenor.com/m/tStHrtBbrTsAAAAd/blade-honkai-star-rail.gif" width="280" alt="Blade animation"/>
 
 ### Blade — Honkai: Star Rail
 
