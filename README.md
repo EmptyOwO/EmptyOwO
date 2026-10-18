@@ -13,7 +13,7 @@
 
 ## ☾・about me
 
-Hi, I'm **EmptyOwO**!
+Hi, I'm **Empty**!
 
 I'm an introverted person who enjoys drawing and fictional stories,
 interesting characters, and stories that leave me thinking
