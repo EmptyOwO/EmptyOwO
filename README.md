@@ -158,7 +158,8 @@ Just be respectful, and we're good.
 
 Please don't interact if you:
 
-- 
+- Are homophobic or discriminatory toward LGBTQ+ people
+  or any other group.
 - Are a proshipper or support the romanticisation
   of abusive or exploitative relationships.
 - Harass people over fictional characters or ships.
