@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://giffiles.alphacoders.com/219/219905.gif" width="300" alt="Blade animation"/>
+<img src="https://giffiles.alphacoders.com/219/219905.gif" width="450" alt="Blade animation"/>
 
 <div align="center">
 
