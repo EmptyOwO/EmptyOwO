@@ -5,7 +5,7 @@
 
 ✦ ─────────────── ☾ ─────────────── ✦
 
-**introvert · college student who draws · fictional character enthusiast**
+**introvert · college student who draws · Blade's Wife**
 
 </div>
 
@@ -63,6 +63,7 @@ I might end up adding it to my ever-growing list.
 ### Currently watching / reading
 
 - **The Apothecary Diaries**
+- **Witch Hat Atelier**
 - **The Forgotten Field**
 - **The Way to Protect the Female Lead's Older Brother**
 - **Gachiakuta**
@@ -97,7 +98,7 @@ There's just something about Blade that makes him so interesting to me. I could 
 
 AND CAN WE TALK ABOUT HIS DESIGN FOR A SECOND????
 
-The long dark hair, the red eyes, the outfit, the color palette, EVERYTHING. Whoever designed this man knew exactly what they were doing because how am I supposed to act normal about him???? I SWEAR I AM TRYING.
+The long dark hair, the red eyes, the outfit, the colour palette, EVERYTHING. Whoever designed this man knew exactly what they were doing because how am I supposed to act normal about him???? I SWEAR I AM TRYING.
 
 But honestly, it's not just because he's attractive (although let's be real, that definitely doesn't help my case). I genuinely find his character fascinating. There's so much to unpack about him, especially when it comes to his past and how everything that happened to him shaped who he is now. I love characters who have so much going on beneath the surface, and Blade is definitely one of them.
 
@@ -129,7 +130,7 @@ And yes, I am aware that he's fictional. THANK YOU. I KNOW. THIS INFORMATION CHA
 
 If you also like Blade, PLEASE TALK TO ME. I NEED PEOPLE I CAN YAP ABOUT HIM WITH. I DON'T CARE IF IT'S ABOUT HIS LORE, HIS DESIGN, HIS BACKSTORY, OR JUST HOW PRETTY HE IS. I WILL LISTEN.
 
-anyway. blade my beloved. 💙
+Anyway, Blade, my beloved. 💙
 
 </div>
 
@@ -142,7 +143,7 @@ anyway. blade my beloved. 💙
 - Honkai: Star Rail, Genshin Impact, Reverse 1999 and DMC
 - Blade. Again.
 
-I especially enjoy stories with interesting character
+I especially enjoy stories with interesting characters
 development, complicated relationships, and details
 that give you something to think about afterwards.
 
