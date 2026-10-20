@@ -1,6 +1,6 @@
-<div align="left">
+
 <img src="https://i.pinimg.com/originals/10/41/60/104160dba9549c0f98a3ce23f6f86a01.gif" width="490" alt="Blade animation"/> 
-<div align="right">
+
 <img src="https://upload-os-bbs.hoyolab.com/upload/2026/05/27/134474829/bec5e671df26560143a2f27dc8b9a322_2821273213679948975.gif" width="450" alt="Blade animation"/>
 
 </div>
